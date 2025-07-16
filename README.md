@@ -1,1 +1,0 @@
-# EntitasPemikir.github.io
